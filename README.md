@@ -28,4 +28,4 @@ To start my career as an SQA Engineer and grow my skills in software testing and
 
 ## 📫 Contact
 - Email: mianhassan972@gmail.com
-- LinkedIn: linkedin.com/in/mian-muhammad-hassan-6247a7245?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- LinkedInhttps://www.linkedin.com/in/mian-muhammad-hassan-6247a7245/
